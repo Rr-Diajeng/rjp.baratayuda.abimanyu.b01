@@ -1,1 +1,0 @@
-# rjp.baratayuda.abimanyu.b01
